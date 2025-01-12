@@ -9,7 +9,7 @@
 
 - 🤝 I’m looking for help with **finding a full time role**
 
-- 📫 How to reach me **ashl3ylag0@gmail.com**
+- 📫 You can reach me at **ashl3ylag0@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
